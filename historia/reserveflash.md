@@ -1,6 +1,0 @@
-## flash histori  
-
-
-
-zzzzzzzzzzzzzz
-zzzzzzzzzzzzz
